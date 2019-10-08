@@ -1,3 +1,3 @@
 # Wishlist 
 
-http://www.amazon.com/
+[amazon](http://www.amazon.com/)
