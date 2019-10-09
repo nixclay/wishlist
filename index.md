@@ -1,4 +1,11 @@
 # My Wishlist 
+Gift Cards:
+* [Lawn Fawn](http://www.lawnfawn.com) -  One of my favorite brands
+* [Mama Elephant](http://www.mamaelephant.com) - One of my favorite brands
+* [Simon Says Stamp](http://www.simonsaysstamp.com) - Site with lots of different brands
+* [Scrapbook Pal](http://www.scrapbookpal.com) - Discount site!
+* [Hallmark Scrapbook](http://www.hallmarkscrapbook.com) -  Discount site!
+* [Catherine Pooler](http://www.catherinepooler.com) - Inks
 
 Individual Items:
 
@@ -54,12 +61,4 @@ From [Simon Says Stamp](http://www.simonsaysstamp.com):
 * [Simon Says Stamp Large Panda Die](https://www.simonsaysstamp.com/product?id=422972)
 * [Simon Says Stamp Large Body Die](https://www.simonsaysstamp.com/product?id=422990)
 
-
-Gift Cards:
-* [Lawn Fawn](http://www.lawnfawn.com) -  One of my favorite brands
-* [Mama Elephant](http://www.mamaelephant.com) - One of my favorite brands
-* [Simon Says Stamp](http://www.simonsaysstamp.com) - Site with lots of different brands
-* [Scrapbook Pal](http://www.scrapbookpal.com) - Discount site!
-* [Hallmark Scrapbook](http://www.hallmarkscrapbook.com) -  Discount site!
-* [Catherine Pooler](http://www.catherinepooler.com) - Inks
 
