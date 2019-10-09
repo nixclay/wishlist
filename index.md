@@ -9,6 +9,11 @@ Gift Cards:
 
 Individual Items:
 
+From [Taylored Expressions](https://www.tayloredexpressions.com/):
+* [Blender Brushes - for ink](https://www.tayloredexpressions.com/pre-order-te-blender-brushes/)
+* [Brush Storage Caddy](https://www.tayloredexpressions.com/pre-order-te-blender-brushes-storage-caddy/)
+* [Puzzle Die](https://www.tayloredexpressions.com/puzzled-cutting-plate-mixed-media-die/)
+
 From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
 * [Mama Elephant Fuzzy Hugs Stamp Set](https://mamaelephant.com/products/fuzzy-hugs)
 * [Mama Elephant Winter Forest Cover Die](https://mamaelephant.com/products/winter-forest-cover-creative-cuts)
