@@ -3,8 +3,8 @@ Gift Cards:
 * [Lawn Fawn](http://www.lawnfawn.com) -  One of my favorite brands
 * [Mama Elephant](http://www.mamaelephant.com) - One of my favorite brands
 * [Simon Says Stamp](http://www.simonsaysstamp.com) - Site with lots of different brands
-* [Scrapbook Pal](http://www.scrapbookpal.com) - Discount site!
-* [Hallmark Scrapbook](http://www.hallmarkscrapbook.com) -  Discount site!
+* [Scrapbook Pal](http://www.scrapbookpal.com) - Discount site with Lawn Fawn and other brands!
+* [Hallmark Scrapbook](http://www.hallmarkscrapbook.com) -  Discount site with Lawn Fawn and other brands!
 * [Catherine Pooler](http://www.catherinepooler.com) - Inks
 
 Individual Items:
