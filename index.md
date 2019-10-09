@@ -32,6 +32,11 @@ From [Lawn Fawn](http://www.lawnfawn.com/):
 * [Lawn Fawn Slide on Over Circle Dies](https://www.lawnfawn.com/products/slide-on-over-circles)
 NOTE: Many of these can be purchased for cheaper at [Scrapbook Pal](http://www.scrapbookpal.com/) or [Hallmark Scrapbook](http://www.hallmarkscrapbook.com/) 
 
+From [Hello Bluebird](https://shop.hellobluebird.com/collections/clear-stamps):
+* [Pumpkin Time Stamp Set](https://shop.hellobluebird.com/collections/clear-stamps/products/hb-2218)
+* [Spooky Spellers Stamp Set](https://shop.hellobluebird.com/collections/clear-stamps/products/hb-2220)
+* [Boo to You Die](https://shop.hellobluebird.com/collections/stand-alone-dies/products/hb-2224)
+
 From [Catherine Pooler Inks](https://shop.catherinepooler.com/):
 * [Catherine Pooler Inks: Party Collection](https://shop.catherinepooler.com/collections/ink/products/party-collection-life-of-the-party-ink-pads-bundle)
 * [Catherine Pooler Inks: Spring Fling](https://shop.catherinepooler.com/collections/ink/products/party-collection-spring-fling-ink-pad-bundle)
