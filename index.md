@@ -45,6 +45,9 @@ From [Catherine Pooler Inks](https://shop.catherinepooler.com/):
 
 From [Simon Says Stamp](http://www.simonsaysstamp.com):
 * [Neat and Tangled Jump for Joy Stamp Set](https://www.simonsaysstamp.com/product?id=428928)
+* [Hello Bluebird Boo to You Die](https://www.simonsaysstamp.com/product/Hello-Bluebird-BOO-TO-YOU-Die-hb2224-hb2224)
+* [Hello Bluebird Spooky Spellers](https://www.simonsaysstamp.com/product/Hello-Bluebird-SPOOKY-SPELLERS-Clear-Stamps-hb2220-hb2220)
+* [Hello Bluebird Pumpkin Time](https://www.simonsaysstamp.com/product/Hello-Bluebird-PUMPKIN-TIME-Clear-Stamps-hb2218-hb2218)
 * [Heffy Doodle Oh Crumbs Stamp Set](https://www.simonsaysstamp.com/product?id=429302)
 * [Simon Says Stamp Holiday Seals Stamp Set](https://www.simonsaysstamp.com/product?id=443714)
 * [Simon Says Stamp Small Panda Die](https://www.simonsaysstamp.com/product?id=386587)
