@@ -15,6 +15,7 @@ From [Mama Elephant](http://mamaelephant.com/):
 * [Mama Elephant Ghost Agenda](https://mamaelephant.com/products/little-boo-agenda)
 * [Mama Elephant Peace on Earth Stamp Set](https://mamaelephant.com/products/peaceful-wishes)
 * [Mama Elephant Happy New Year](https://mamaelephant.com/products/happy-new-year-wishes)
+* [Mama Elephant Gate Fold Die](https://mamaelephant.com/collections/stand-alone-cuts/products/gatefold-x-fence-creative-cuts)
 
 From [Lawn Fawn](http://www.lawnfawn.com/):
 * [Lawn Fawn Mini Christmas Lights Die](https://www.lawnfawn.com/collections/new-arrivals/products/mini-string-of-lights)
