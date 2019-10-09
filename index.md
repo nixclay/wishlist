@@ -9,7 +9,7 @@ Gift Cards:
 
 Individual Items:
 
-From [Mama Elephant](http://mamaelephant.com/):
+From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
 * [Mama Elephant Fuzzy Hugs Stamp Set](https://mamaelephant.com/products/fuzzy-hugs)
 * [Mama Elephant Penguin Agenda Stamp Set](https://mamaelephant.com/products/little-penguin-agenda)
 * [Mama Elephant Snow Angels Stamp Set](https://mamaelephant.com/products/snow-angels)
@@ -24,7 +24,7 @@ From [Mama Elephant](http://mamaelephant.com/):
 * [Mama Elephant Happy New Year](https://mamaelephant.com/products/happy-new-year-wishes)
 * [Mama Elephant Gate Fold Die](https://mamaelephant.com/collections/stand-alone-cuts/products/gatefold-x-fence-creative-cuts)
 
-From [Lawn Fawn](http://www.lawnfawn.com/):
+From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
 * [Lawn Fawn Mini Christmas Lights Die](https://www.lawnfawn.com/collections/new-arrivals/products/mini-string-of-lights)
 * [Lawn Fawn Tiny Christmas Stamp Set](https://www.lawnfawn.com/collections/new-arrivals/products/tiny-christmas)
 * [Lawn Fawn Christmas Cookies Stamp Set](https://www.lawnfawn.com/collections/new-arrivals/products/how-you-bean-christmas-cookie-add-on)
@@ -39,18 +39,13 @@ From [Lawn Fawn](http://www.lawnfawn.com/):
 * [Lawn Fawn Slide on Over Circle Dies](https://www.lawnfawn.com/products/slide-on-over-circles)
 NOTE: Many of these can be purchased for cheaper at [Scrapbook Pal](http://www.scrapbookpal.com/) or [Hallmark Scrapbook](http://www.hallmarkscrapbook.com/) 
 
-From [Hello Bluebird](https://shop.hellobluebird.com/collections/clear-stamps):
-* [Pumpkin Time Stamp Set](https://shop.hellobluebird.com/collections/clear-stamps/products/hb-2218)
-* [Spooky Spellers Stamp Set](https://shop.hellobluebird.com/collections/clear-stamps/products/hb-2220)
-* [Boo to You Die](https://shop.hellobluebird.com/collections/stand-alone-dies/products/hb-2224)
-
 From [Catherine Pooler Inks](https://shop.catherinepooler.com/):
 * [Catherine Pooler Inks: Party Collection](https://shop.catherinepooler.com/collections/ink/products/party-collection-life-of-the-party-ink-pads-bundle)
 * [Catherine Pooler Inks: Spring Fling](https://shop.catherinepooler.com/collections/ink/products/party-collection-spring-fling-ink-pad-bundle)
 * [Catherine Pooler Inks: Paradise Found](https://shop.catherinepooler.com/collections/ink/products/spa-collection-paradise-found-ink-pads-bundle)
 * [Catherine Pooler Inks: Zen Garden](https://shop.catherinepooler.com/collections/ink/products/spa-collection-zen-garden-ink-pads-bundle)
 
-From [Simon Says Stamp](http://www.simonsaysstamp.com):
+From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site with lots of brands including Lawn Fawn up above!):
 * [Neat and Tangled Jump for Joy Stamp Set](https://www.simonsaysstamp.com/product?id=428928)
 * [Hello Bluebird Boo to You Die](https://www.simonsaysstamp.com/product/Hello-Bluebird-BOO-TO-YOU-Die-hb2224-hb2224)
 * [Hello Bluebird Spooky Spellers](https://www.simonsaysstamp.com/product/Hello-Bluebird-SPOOKY-SPELLERS-Clear-Stamps-hb2220-hb2220)
