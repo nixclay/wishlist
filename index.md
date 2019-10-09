@@ -1,6 +1,8 @@
 # My Wishlist 
 
 Individual Items:
+
+From [Mama Elephant](http://mamaelephant.com/):
 * [Mama Elephant Fuzzy Hugs Stamp Set](https://mamaelephant.com/products/fuzzy-hugs)
 * [Mama Elephant Penguin Agenda Stamp Set](https://mamaelephant.com/products/little-penguin-agenda)
 * [Mama Elephant Snow Angels Stamp Set](https://mamaelephant.com/products/snow-angels)
@@ -13,6 +15,8 @@ Individual Items:
 * [Mama Elephant Ghost Agenda](https://mamaelephant.com/products/little-boo-agenda)
 * [Mama Elephant Peace on Earth Stamp Set](https://mamaelephant.com/products/peaceful-wishes)
 * [Mama Elephant Happy New Year](https://mamaelephant.com/products/happy-new-year-wishes)
+
+From [Lawn Fawn](http://www.lawnfawn.com/):
 * [Lawn Fawn Mini Christmas Lights Die](https://www.lawnfawn.com/collections/new-arrivals/products/mini-string-of-lights)
 * [Lawn Fawn Tiny Christmas Stamp Set](https://www.lawnfawn.com/collections/new-arrivals/products/tiny-christmas)
 * [Lawn Fawn Christmas Cookies Stamp Set](https://www.lawnfawn.com/collections/new-arrivals/products/how-you-bean-christmas-cookie-add-on)
@@ -25,10 +29,15 @@ Individual Items:
 * [Lawn Fawn Tiny Gift Box - Turkey](https://www.lawnfawn.com/collections/new-arrivals/products/tiny-gift-box-peacock-and-turkey-add-on)
 * [Lawn Fawn Baaah Humbug Stamp Set](https://www.lawnfawn.com/products/baaah-humbug)
 * [Lawn Fawn Slide on Over Circle Dies](https://www.lawnfawn.com/products/slide-on-over-circles)
+NOTE: Many of these can be purchased for cheaper at [Scrapbook Pal](http://www.scrapbookpal.com/) or [Hallmark Scrapbook](http://www.hallmarkscrapbook.com/) 
+
+From [Catherine Pooler Inks](https://shop.catherinepooler.com/):
 * [Catherine Pooler Inks: Party Collection](https://shop.catherinepooler.com/collections/ink/products/party-collection-life-of-the-party-ink-pads-bundle)
 * [Catherine Pooler Inks: Spring Fling](https://shop.catherinepooler.com/collections/ink/products/party-collection-spring-fling-ink-pad-bundle)
 * [Catherine Pooler Inks: Paradise Found](https://shop.catherinepooler.com/collections/ink/products/spa-collection-paradise-found-ink-pads-bundle)
 * [Catherine Pooler Inks: Zen Garden](https://shop.catherinepooler.com/collections/ink/products/spa-collection-zen-garden-ink-pads-bundle)
+
+From [Simon Says Stamp](http://www.simonsaysstamp.com):
 * [Neat and Tangled Jump for Joy Stamp Set](https://www.simonsaysstamp.com/product?id=428928)
 * [Heffy Doodle Oh Crumbs Stamp Set](https://www.simonsaysstamp.com/product?id=429302)
 * [Simon Says Stamp Holiday Seals Stamp Set](https://www.simonsaysstamp.com/product?id=443714)
