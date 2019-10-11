@@ -4,8 +4,8 @@ Gift Cards:
 * [Mama Elephant](http://www.mamaelephant.com) - One of my favorite brands!
 * [Simon Says Stamp](http://www.simonsaysstamp.com) - Site with lots of different brands
 * [Scrapbook Pal](http://www.scrapbookpal.com) - Discount site with Lawn Fawn and other brands!
-* [Hallmark Scrapbook](http://www.hallmarkscrapbook.com) -  Discount site with Lawn Fawn and other brands!
 * [Catherine Pooler](http://www.catherinepooler.com) - Inks
+* [Leahlani Skincare](http://www.leahlani.com) - Non-crafty item - Skincare!
 
 Individual Items:
 
@@ -40,8 +40,7 @@ From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
 * [Lawn Fawn Windy Backdrop](https://www.lawnfawn.com/products/stitched-windy-backdrop)
 * [Lawn Fawn Baked With Love Stamp Set](https://www.lawnfawn.com/products/baked-with-love)
 * [Lawn Fawn Tiny Gift Box - Turkey](https://www.lawnfawn.com/collections/new-arrivals/products/tiny-gift-box-peacock-and-turkey-add-on)
-
-NOTE: Many of these can be purchased for cheaper at [Scrapbook Pal](http://www.scrapbookpal.com/) or [Hallmark Scrapbook](http://www.hallmarkscrapbook.com/) 
+NOTE: Many of these can be purchased for cheaper at [Scrapbook Pal](http://www.scrapbookpal.com/) 
 
 From [Catherine Pooler Inks](https://shop.catherinepooler.com/):
 * [Catherine Pooler Inks: Party Collection](https://shop.catherinepooler.com/collections/ink/products/party-collection-life-of-the-party-ink-pads-bundle)
