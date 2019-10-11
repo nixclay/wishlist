@@ -60,9 +60,8 @@ From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site w
 * [Simon Says Stamp Large Panda Die](https://www.simonsaysstamp.com/product?id=422972)
 * [Simon Says Stamp Large Body Die](https://www.simonsaysstamp.com/product?id=422990)
 
-Non-crafty wishlist: Skincare!
-* [Leahlani Skincare](https://www.leahlaniskincare.com/)
-** [Siren Serum](https://www.leahlaniskincare.com/collections/serums/products/siren-serum)
+Non-crafty wishlist from [Leahlani Skincare](https://www.leahlaniskincare.com/):
+* [Siren Serum](https://www.leahlaniskincare.com/collections/serums/products/siren-serum)
 * [Cleansing Oil](https://www.leahlaniskincare.com/collections/cleanser/products/collections-cleanser-products-pamplemousse-tropical-enzyme-cleansing-oil)
 * [Bless Balm Moisturizer](https://www.leahlaniskincare.com/collections/moisturize/products/bless-balm)
 * [Sea Salt Bar](https://www.leahlaniskincare.com/products/bless-beauty-bar-sea-salt-soap)
