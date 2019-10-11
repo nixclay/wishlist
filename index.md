@@ -3,7 +3,7 @@ Gift Cards:
 * [Lawn Fawn](http://www.lawnfawn.com) -  One of my favorite brands!
 * [Mama Elephant](http://www.mamaelephant.com) - One of my favorite brands!
 * [Simon Says Stamp](http://www.simonsaysstamp.com) - Site with lots of different brands
-* [Scrapbook Pal](http://www.scrapbookpal.com) - Discount site with Lawn Fawn and other brands!
+* [Scrapbook Pal](http://www.scrapbookpal.com) - Discount site with Lawn Fawn (but not Mama Elephant) and other brands!
 * [Catherine Pooler](http://www.catherinepooler.com) - Inks
 * [Leahlani Skincare](http://www.leahlani.com) - Non-crafty item - Skincare!
 
