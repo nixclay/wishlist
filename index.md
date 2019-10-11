@@ -62,7 +62,7 @@ From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site w
 
 Non-crafty wishlist: Skincare!
 * [Leahlani Skincare](https://www.leahlaniskincare.com/)
-** [Siren Serum](https://www.leahlaniskincare.com/collections/serums/products/siren-serum)
-** [Cleansing Oil](https://www.leahlaniskincare.com/collections/cleanser/products/collections-cleanser-products-pamplemousse-tropical-enzyme-cleansing-oil)
-** [Bless Balm Moisturizer](https://www.leahlaniskincare.com/collections/moisturize/products/bless-balm)
-** [Sea Salt Bar](https://www.leahlaniskincare.com/products/bless-beauty-bar-sea-salt-soap)
+* [Siren Serum](https://www.leahlaniskincare.com/collections/serums/products/siren-serum)
+* [Cleansing Oil](https://www.leahlaniskincare.com/collections/cleanser/products/collections-cleanser-products-pamplemousse-tropical-enzyme-cleansing-oil)
+* [Bless Balm Moisturizer](https://www.leahlaniskincare.com/collections/moisturize/products/bless-balm)
+* [Sea Salt Bar](https://www.leahlaniskincare.com/products/bless-beauty-bar-sea-salt-soap)
