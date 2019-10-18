@@ -30,7 +30,6 @@ From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
 
 From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
 * [Lawn Fawn Thanks A Latte Stamp Set](https://www.lawnfawn.com/products/thanks-a-latte)
-* [Lawn Fawn Mini Christmas Lights Die](https://www.lawnfawn.com/collections/new-arrivals/products/mini-string-of-lights)
 * [Lawn Fawn Build-a-House Die](https://www.lawnfawn.com/collections/new-arrivals/products/build-a-house)
 * [Lawn Fawn Build-a-House Christmas Add-on Stamp Set](https://www.lawnfawn.com/collections/new-arrivals/products/build-a-house-christmas-add-on)
 * [Lawn Fawn Christmas Cookies Stamp Set](https://www.lawnfawn.com/collections/new-arrivals/products/how-you-bean-christmas-cookie-add-on)
