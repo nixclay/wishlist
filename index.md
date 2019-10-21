@@ -5,7 +5,6 @@ Gift Cards:
 * [Simon Says Stamp](http://www.simonsaysstamp.com) - Site with lots of different brands
 * [Scrapbook Pal](http://www.scrapbookpal.com) - Discount site with Lawn Fawn (but not Mama Elephant) and other brands!
 * [Catherine Pooler](http://www.catherinepooler.com) - Inks
-* [Leahlani Skincare](http://www.leahlani.com) - Non-crafty item - Skincare!
 
 Individual Items:
 
@@ -46,10 +45,7 @@ From [Catherine Pooler Inks](https://shop.catherinepooler.com/):
 * [Catherine Pooler Inks: Zen Garden](https://shop.catherinepooler.com/collections/ink/products/spa-collection-zen-garden-ink-pads-bundle)
 
 From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site with lots of brands including Lawn Fawn up above!):
-* [Hello Bluebird Pumpkin Time](https://www.simonsaysstamp.com/product/Hello-Bluebird-PUMPKIN-TIME-Clear-Stamps-hb2218-hb2218)
 * [Neat and Tangled Jump for Joy Stamp Set](https://www.simonsaysstamp.com/product?id=428928)
-* [Hello Bluebird Boo to You Die](https://www.simonsaysstamp.com/product/Hello-Bluebird-BOO-TO-YOU-Die-hb2224-hb2224)
-* [Hello Bluebird Spooky Spellers](https://www.simonsaysstamp.com/product/Hello-Bluebird-SPOOKY-SPELLERS-Clear-Stamps-hb2220-hb2220)
 * [Heffy Doodle Oh Crumbs Stamp Set](https://www.simonsaysstamp.com/product?id=429302)
 * [Simon Says Stamp Holiday Seals Stamp Set](https://www.simonsaysstamp.com/product?id=443714)
 * [Simon Says Stamp Small Panda Die](https://www.simonsaysstamp.com/product?id=386587)
