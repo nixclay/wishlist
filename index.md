@@ -9,15 +9,14 @@ Gift Cards:
 Individual Items:
 
 From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
-* [Mama Elephant Fuzzy Hugs Stamp Set](https://mamaelephant.com/products/fuzzy-hugs)
-* [Mama Elephant Winter Forest Cover Die](https://mamaelephant.com/products/winter-forest-cover-creative-cuts)
 * [Mama Elephant Cool Penguins](https://mamaelephant.com/products/cool-penguins)
+* [Mama Elephant Snow Globe Bitties](https://mamaelephant.com/collections/holidays/products/snow-globe-bitties)
+* [Mama Elephant Snow Globe Scenes](https://mamaelephant.com/collections/holidays/products/snow-globe-scenes)
+* [Mama Elephant Snow Globe Dies](https://mamaelephant.com/products/snow-globe-bitties-creative-cuts)
 * [Mama Elephant Yappy Woofmas](https://mamaelephant.com/products/yappy-woofmas)
 * [Mama Elephant Snow Angels Stamp Set](https://mamaelephant.com/products/snow-angels)
 * [Mama Elephant Written in the Snow Stamp Set](https://mamaelephant.com/products/written-in-the-snow)
 * [Mama Elephant Penguin Agenda Stamp Set](https://mamaelephant.com/products/little-penguin-agenda)
-* [Mama Elephant Ghost Agenda](https://mamaelephant.com/products/little-boo-agenda)
-* [Mama Elephant Peace on Earth Stamp Set](https://mamaelephant.com/products/peaceful-wishes)
 * [Mama Elephant Happy New Year](https://mamaelephant.com/products/happy-new-year-wishes)
 * [Mama Elephant Gate Fold Die](https://mamaelephant.com/collections/stand-alone-cuts/products/gatefold-x-fence-creative-cuts)
 
