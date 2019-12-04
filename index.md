@@ -27,9 +27,7 @@ From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
 
 From [Catherine Pooler Inks](https://shop.catherinepooler.com/):
 * [Catherine Pooler Inks: Spring Fling](https://shop.catherinepooler.com/collections/ink/products/party-collection-spring-fling-ink-pad-bundle)
-* [Catherine Pooler Inks: Zen Garden](https://shop.catherinepooler.com/collections/ink/products/spa-collection-zen-garden-ink-pads-bundle)
 * [Catherine Pooler Inks: Urban Oasis](https://shop.catherinepooler.com/collections/ink/products/spa-collection-urban-oasis-ink-pads-bundle-all-8-colors)
-* [Catherine Pooler Inks: Foundation Colors](https://shop.catherinepooler.com/collections/ink/products/party-collection-foundations-ink-pad-bundle)
 
 From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site with lots of brands including Lawn Fawn up above!):
 * [Heffy Doodle Oh Crumbs Stamp Set](https://www.simonsaysstamp.com/product?id=429302)
