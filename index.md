@@ -14,14 +14,12 @@ From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
 * [Mama Elephant Snow Globe Scenes](https://mamaelephant.com/collections/holidays/products/snow-globe-scenes)
 * [Mama Elephant Snow Globe Dies](https://mamaelephant.com/products/snow-globe-bitties-creative-cuts)
 * [Mama Elephant Yappy Woofmas](https://mamaelephant.com/products/yappy-woofmas)
-* [Mama Elephant Snow Angels Stamp Set](https://mamaelephant.com/products/snow-angels)
 * [Mama Elephant Written in the Snow Stamp Set](https://mamaelephant.com/products/written-in-the-snow)
 * [Mama Elephant Penguin Agenda Stamp Set](https://mamaelephant.com/products/little-penguin-agenda)
 * [Mama Elephant Happy New Year](https://mamaelephant.com/products/happy-new-year-wishes)
 * [Mama Elephant Gate Fold Die](https://mamaelephant.com/collections/stand-alone-cuts/products/gatefold-x-fence-creative-cuts)
 
 From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
-* [Lawn Fawn Christmas Cookies Stamp Set](https://www.lawnfawn.com/collections/new-arrivals/products/how-you-bean-christmas-cookie-add-on)
 * [Lawn Fawn Windy Backdrop](https://www.lawnfawn.com/products/stitched-windy-backdrop)
 * [Lawn Fawn Baked With Love Stamp Set](https://www.lawnfawn.com/products/baked-with-love)
 
@@ -38,7 +36,6 @@ From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site w
 * [Rabbit Hole Designs Caffeinated Reindeer](https://www.simonsaysstamp.com/product/The-Rabbit-Hole-Designs-CAFFEINATED-REINDEER-Clear-Stamps-TRH-32-trh32)
 * [Rabbit Hole Designs Caffeinated Turkey](https://www.simonsaysstamp.com/product/The-Rabbit-Hole-Designs-CAFFEINATED-TURKEY-Clear-Stamps-TRH-31-trh31)
 * [Rabbit Hole Designs Caffeinated Owl](https://www.simonsaysstamp.com/product/The-Rabbit-Hole-Designs-CAFFEINATED-OWL-Clear-Stamps-TRH-37-trh37)
-* [Rabbit Hole Designs Sassy Sentiments](https://www.simonsaysstamp.com/product/The-Rabbit-Hole-Designs-SASSY-SENTIMENTS-Clear-Stamps-TRH-13-trh13)
 * [Rabbit Hole Designs Caffeinated Sentiments](https://www.simonsaysstamp.com/product/The-Rabbit-Hole-Designs-PERFECTLY-BLENDED-Clear-Stamps-TRH-17-trh17)
 * [Rabbit Hole Designs Caffeinated Butterfly](https://www.simonsaysstamp.com/product/The-Rabbit-Hole-Designs-CAFFEINATED-BUTTERFLY-Clear-Stamps-TRH-38-trh38)
 * [Rabbit Hole Designs Caffeinated Rabbit](https://www.simonsaysstamp.com/product/The-Rabbit-Hole-Designs-CAFFEINATED-RABBIT-Clear-Stamps-TRH-15-trh15)
