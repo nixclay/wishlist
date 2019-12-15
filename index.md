@@ -4,7 +4,6 @@ Gift Cards:
 * [Mama Elephant](http://www.mamaelephant.com) - One of my favorite brands!
 * [Simon Says Stamp](http://www.simonsaysstamp.com) - Site with lots of different brands
 * [Scrapbook Pal](http://www.scrapbookpal.com) - Discount site with Lawn Fawn (but not Mama Elephant) and other brands!
-* [Catherine Pooler](http://www.catherinepooler.com) - Inks
 
 Individual Items:
 
@@ -23,9 +22,6 @@ From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
 * [Lawn Fawn Windy Backdrop](https://www.lawnfawn.com/products/stitched-windy-backdrop)
 * [Lawn Fawn Baked With Love Stamp Set](https://www.lawnfawn.com/products/baked-with-love)
 
-From [Catherine Pooler Inks](https://shop.catherinepooler.com/):
-* [Catherine Pooler Inks: Spring Fling](https://shop.catherinepooler.com/collections/ink/products/party-collection-spring-fling-ink-pad-bundle)
-* [Catherine Pooler Inks: Urban Oasis](https://shop.catherinepooler.com/collections/ink/products/spa-collection-urban-oasis-ink-pads-bundle-all-8-colors)
 
 From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site with lots of brands including Lawn Fawn up above!):
 * [Heffy Doodle Oh Crumbs Stamp Set](https://www.simonsaysstamp.com/product?id=429302)
