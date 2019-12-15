@@ -25,7 +25,6 @@ From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
 
 From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site with lots of brands including Lawn Fawn up above!):
 * [Heffy Doodle Oh Crumbs Stamp Set](https://www.simonsaysstamp.com/product?id=429302)
-* [Simon Says Stamp Holiday Seals Stamp Set](https://www.simonsaysstamp.com/product?id=443714)
 * [Simon Says Stamp Small Panda Die](https://www.simonsaysstamp.com/product?id=386587)
 * [Simon Says Stamp Large Panda Die](https://www.simonsaysstamp.com/product?id=422972)
 * [Simon Says Stamp Large Body Die](https://www.simonsaysstamp.com/product?id=422990)
