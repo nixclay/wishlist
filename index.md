@@ -19,6 +19,8 @@ From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
 * [Mama Elephant Sheep](https://mamaelephant.com/collections/new/products/zodiac-sheep)
 
 From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
+* Lawn Fawn Den Sweet Den (Link coming)
+* Lawn Fawn Stitched Dens (Link coming)
 * [Lawn Fawn Ocean Shell-fie](https://www.lawnfawn.com/collections/new-arrivals/products/ocean-shell-fie)
 * [Lawn Fawn Crazy Antics](https://www.lawnfawn.com/collections/new-arrivals/products/crazy-antics)
 * [Lawn Fawn Magic Iris Camera Add-On](https://www.lawnfawn.com/collections/new-arrivals/products/magic-iris-camera-add-on)
