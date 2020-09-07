@@ -39,3 +39,16 @@ From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site w
 * [Simon Says Stamp Large Panda Die](https://www.simonsaysstamp.com/product?id=422972)
 * [Simon Says Stamp Large Body Die](https://www.simonsaysstamp.com/product?id=422990)
 
+From [Honey Bee Stamps](https://honeybeestamps.com/)
+* [House Builder](https://honeybeestamps.com/products/house-builder-card-base)
+* [Haunted House Add-on](https://honeybeestamps.com/products/haunted-house-add-on-honey-cuts)
+* [Gingerbread House Add-on Dies](https://honeybeestamps.com/products/gingerbread-house-add-on-honey-cuts)
+* [Gingerbread House Add-on Stamps](https://honeybeestamps.com/products/gingerbread-house-add-on-6x6-stamp-set)
+* [Farmhouse Add-On Dies](https://honeybeestamps.com/products/farmhouse-add-on-honey-cuts)
+* [Farmhouse Add-on Stamps](https://honeybeestamps.com/products/farmhouse-add-on-3x4-stamp-set)
+* [River Rock Stencil](https://honeybeestamps.com/products/river-rock-background-stencil)
+* [Brick Stencil](https://honeybeestamps.com/products/perfect-bricks-background-stencil)
+* [Scalloped Shingles Stencil](https://honeybeestamps.com/products/scalloped-shingles-background-stencil)
+* [Square Shingles Stencil](https://honeybeestamps.com/products/square-shingles-background-stencil)
+
+
