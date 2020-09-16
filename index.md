@@ -8,7 +8,8 @@ Gift Cards:
 Individual Items:
 
 From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
-* [Mama Elephant Cool Penguins](https://mamaelephant.com/products/cool-penguins)
+* [Mama Elephant Boo Agenda Stamp Set](https://mamaelephant.com/products/little-boo-agenda)
+* [Mama Elephant Cool Penguins Stamp Set](https://mamaelephant.com/products/cool-penguins)
 * [Mama Elephant Penguin Agenda Stamp Set](https://mamaelephant.com/products/little-penguin-agenda)
 * [Mama Elephant Sloths](https://mamaelephant.com/collections/new/products/little-sloth-agenda)
 * [Mama Elephant Rabbits](https://mamaelephant.com/products/zodiac-rabbit)
