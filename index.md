@@ -9,18 +9,18 @@ Individual Items:
 
 From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
 * [Mama Elephant Cool Penguins](https://mamaelephant.com/products/cool-penguins)
-* [Mama Elephant Snow Globes](https://mamaelephant.com/products/snow-globe-bitties)
-* [Mama Elephant Snow Globe Scenes](https://mamaelephant.com/products/snow-globe-scenes)
-* [Mama Elephant Banner Dies](https://mamaelephant.com/products/build-a-banner-pennants-creative-cuts)
-* [Mama Elephant Whimsy Alphabet Dies](https://mamaelephant.com/products/whimsy-alphas-creative-cuts)
 * [Mama Elephant Penguin Agenda Stamp Set](https://mamaelephant.com/products/little-penguin-agenda)
 * [Mama Elephant Sloths](https://mamaelephant.com/collections/new/products/little-sloth-agenda)
 * [Mama Elephant Rabbits](https://mamaelephant.com/products/zodiac-rabbit)
 * [Mama Elephant Sheep](https://mamaelephant.com/collections/new/products/zodiac-sheep)
 
 From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
-* Lawn Fawn Den Sweet Den (Link coming)
-* Lawn Fawn Stitched Dens (Link coming)
+* [Squirrel Pin!](https://www.lawnfawn.com/collections/new-arrivals/products/nuts-about-you-enamel-pin)
+* [Lawn Fawn Den Sweet Den](https://www.lawnfawn.com/collections/new-arrivals/products/den-sweet-den)
+* [Lawn Fawn Stitched Dens](https://www.lawnfawn.com/collections/new-arrivals/products/stitched-dens)
+* [Lawn Fawn Acorn House](https://www.lawnfawn.com/collections/new-arrivals/products/acorn-house)
+* [Lawn Fawn Big Acorn Stamp](https://www.lawnfawn.com/collections/new-arrivals/products/big-acorn)
+* [Lawn Fawn Peas on Earth Stamp](https://www.lawnfawn.com/collections/new-arrivals/products/peas-on-earth)
 * [Lawn Fawn Ocean Shell-fie](https://www.lawnfawn.com/collections/new-arrivals/products/ocean-shell-fie)
 * [Lawn Fawn Crazy Antics](https://www.lawnfawn.com/collections/new-arrivals/products/crazy-antics)
 * [Lawn Fawn Magic Iris Camera Add-On](https://www.lawnfawn.com/collections/new-arrivals/products/magic-iris-camera-add-on)
