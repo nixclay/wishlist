@@ -28,11 +28,8 @@ From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
 * [Lawn Fawn Magic Iris Camera Photo](https://www.lawnfawn.com/collections/new-arrivals/products/magic-iris-camera-pull-tab-add-on)
 * [Lawn Fawn Spring Critter Hugger](https://www.lawnfawn.com/collections/new-arrivals/products/spring-critter-huggers)
 * [Lawn Fawn Get Well stamp set](https://www.lawnfawn.com/products/get-well-before-n-afters)
-* [Lawn Fawn Baked With Love stamp set](https://www.lawnfawn.com/products/baked-with-love)
-* [Lawn Fawn Loads of Fun stamp set](https://www.lawnfawn.com/products/loads-of-fun)
 * [Lawn Fawn Happy Hatchling die](https://www.lawnfawn.com/products/happy-hatchling)
 * [Lawn Fawn Narwhal die](https://www.lawnfawn.com/products/narwhal-and-friends)
-* [Lawn Fawn Wave dies](https://www.lawnfawn.com/products/stitched-wave-borders)
 
 From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site with lots of brands including Lawn Fawn up above!):
 * [Heffy Doodle Oh Crumbs Stamp Set](https://www.simonsaysstamp.com/product?id=429302)
