@@ -17,7 +17,7 @@ From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
 
 From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
 
-(Most of these are on my Amazon wishlist now!)
+(Most of these are on my [Amazon wishlist](https://www.amazon.com/hz/wishlist/ls/6GSEX8DVFT7X?ref_=wl_share) now!)
 
 * [Squirrel Pin!](https://www.lawnfawn.com/collections/new-arrivals/products/nuts-about-you-enamel-pin)
 * [Lawn Fawn Den Sweet Den](https://www.lawnfawn.com/collections/new-arrivals/products/den-sweet-den)
