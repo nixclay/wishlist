@@ -16,7 +16,9 @@ From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
 * [Mama Elephant Sheep](https://mamaelephant.com/collections/new/products/zodiac-sheep)
 
 From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
+
 (Most of these are on my Amazon wishlist now!)
+
 * [Squirrel Pin!](https://www.lawnfawn.com/collections/new-arrivals/products/nuts-about-you-enamel-pin)
 * [Lawn Fawn Den Sweet Den](https://www.lawnfawn.com/collections/new-arrivals/products/den-sweet-den)
 * [Lawn Fawn Stitched Dens](https://www.lawnfawn.com/collections/new-arrivals/products/stitched-dens)
