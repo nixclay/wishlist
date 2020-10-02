@@ -16,11 +16,10 @@ From [Mama Elephant](http://mamaelephant.com/) (One of my favorite brands):
 * [Mama Elephant Sheep](https://mamaelephant.com/collections/new/products/zodiac-sheep)
 
 From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
+(Most of these are on my Amazon wishlist now!)
 * [Squirrel Pin!](https://www.lawnfawn.com/collections/new-arrivals/products/nuts-about-you-enamel-pin)
 * [Lawn Fawn Den Sweet Den](https://www.lawnfawn.com/collections/new-arrivals/products/den-sweet-den)
 * [Lawn Fawn Stitched Dens](https://www.lawnfawn.com/collections/new-arrivals/products/stitched-dens)
-* [Lawn Fawn Acorn House](https://www.lawnfawn.com/collections/new-arrivals/products/acorn-house)
-* [Lawn Fawn Big Acorn Stamp](https://www.lawnfawn.com/collections/new-arrivals/products/big-acorn)
 * [Lawn Fawn Peas on Earth Stamp](https://www.lawnfawn.com/collections/new-arrivals/products/peas-on-earth)
 * [Lawn Fawn Ocean Shell-fie](https://www.lawnfawn.com/collections/new-arrivals/products/ocean-shell-fie)
 * [Lawn Fawn Crazy Antics](https://www.lawnfawn.com/collections/new-arrivals/products/crazy-antics)
@@ -28,7 +27,6 @@ From [Lawn Fawn](http://www.lawnfawn.com/) (One of my favorite brands):
 * [Lawn Fawn Magic Iris Camera Photo](https://www.lawnfawn.com/collections/new-arrivals/products/magic-iris-camera-pull-tab-add-on)
 * [Lawn Fawn Spring Critter Hugger](https://www.lawnfawn.com/collections/new-arrivals/products/spring-critter-huggers)
 * [Lawn Fawn Get Well stamp set](https://www.lawnfawn.com/products/get-well-before-n-afters)
-* [Lawn Fawn Happy Hatchling die](https://www.lawnfawn.com/products/happy-hatchling)
 * [Lawn Fawn Narwhal die](https://www.lawnfawn.com/products/narwhal-and-friends)
 
 From [Simon Says Stamp](http://www.simonsaysstamp.com) (A super versatile site with lots of brands including Lawn Fawn up above!):
